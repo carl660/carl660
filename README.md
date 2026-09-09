@@ -26,7 +26,6 @@ Conquistar uma oportunidade de estágio ou primeiro emprego na área de TI;
 Evoluir constantemente como profissional.
 📫 Contato
 📧 E-mail: cacedudamasceno@gmail.com
-📱 Telefone: (16) 99357-5106
 📍 Localização: Patrocínio Paulista — SP, Brasil
 
 ⭐ Obrigado por visitar meu perfil!
