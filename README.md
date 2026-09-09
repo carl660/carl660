@@ -16,18 +16,20 @@ Meu principal objetivo é continuar aprendendo e evoluindo profissionalmente, bu
 🎓 Engenharia de Software — UNIFRAN
 Atualmente no 2º semestre
 💻 Curso de Informática Avançada
-📖 Ensino Médio — Concluído em 2023
+📖 Ensino Médio
+Concluído em 2023
 🎯 Objetivos
-Aprimorar meus conhecimentos em Tecnologia da Informação;
-Desenvolver habilidades de programação e engenharia de software;
-Adquirir experiência profissional;
-Participar de projetos e aprender com novos desafios;
-Conquistar uma oportunidade de estágio ou primeiro emprego na área de TI;
-Evoluir constantemente como profissional.
+📚 Aprimorar meus conhecimentos em Tecnologia da Informação;
+💻 Desenvolver habilidades de programação e engenharia de software;
+🚀 Adquirir experiência profissional;
+🛠️ Participar de projetos e aprender com novos desafios;
+💼 Conquistar uma oportunidade de estágio ou primeiro emprego na área de TI;
+📈 Evoluir constantemente como profissional.
 📫 Contato
 📧 E-mail: cacedudamasceno@gmail.com
 📍 Localização: Patrocínio Paulista — SP, Brasil
-
 ⭐ Obrigado por visitar meu perfil!
 
 Estou sempre em busca de novos conhecimentos, desafios e oportunidades para crescer na área de Tecnologia da Informação.
+
+Seja bem-vindo ao meu perfil! 🚀
